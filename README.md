@@ -38,7 +38,7 @@ Visualized employee performance and department analysis
 
 ## Connect With Me
 * LinkedIn: https://www.linkedin.com/in/yuva-rani-b60547411
-* GitHub: https://github.com/
+* GitHub: https://github.com/yuvarania1708-alt
 
 
 ## Goals
